@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ridham Jain
-- 👀 I’m interested in coding, call of duty 
+- 👀 I’m interested in coding, minecraft
 - 💞️ I’m looking to collaborate on designing and editing
 - 📫 How to reach me casual.ridham@gmail.com
 - ⚡ Fun fact: I cant do the planting bombs mission in GTA Vice City
